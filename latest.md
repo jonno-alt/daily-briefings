@@ -1,0 +1,1 @@
+First briefing arrives tomorrow morning at 5:30 AM Brisbane.

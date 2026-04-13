@@ -1,0 +1,19 @@
+Good morning Jonno. This is your Tuesday morning reset for Clarity Group Global, the fourteenth of April, twenty twenty six.
+
+Let's start with the one thing that matters most today. Aaron John at Capgemini. Today is the deadline you set yourself for the final follow-up on the Workplace Wellness Event in May. This is a fifteen thousand dollar proposal, weighted at six thousand, and it's the single highest value deal sitting in your pipeline right now. The draft is already written and waiting in your Gmail. Send it before the conference starts at half past nine. That's the move.
+
+Now to what came in overnight. Three things worth surfacing, all Clarity Group Global. First, Luke Munns sent through the full brief for the mediation on the twenty ninth of April in Sydney. That's already logged as a three and a half thousand dollar deal, weighted at two thousand one hundred. Your draft reply accepting the role and asking about fee is sitting in Gmail, ready to go. Second, Jason Bloomberg replied chasing the bio correction he sent over the weekend. Your reply draft is ready. Thirty seconds to clear. Third, there was a bounce back from Calcasieu Parish School Board. One of the addresses on the outreach list is dead. Either re queue or skip. No new hot inbound from the website or LinkedIn.
+
+Now to your schedule. Today is a conference day. The QB Conference runs from half past nine until four at Riverlife Baptist Church. After that you're picking up Roman from daycare, and the rest of the evening is family time. None of this counts as Clarity Group Global work. You have one narrow work window before half past nine. Use it well.
+
+On your pipeline. You've got nineteen active deals in play. Revenue closed this week so far is zero, which leaves the full twelve thousand dollar gap to your weekly target still open. Your top three focus deals by weighted value are Capgemini at six thousand weighted, Luke Munns at two thousand one hundred, and the Scotland deal with Greg Dempster at AHDS at one thousand seven hundred and fifty. The good news is nothing has stalled past fourteen days. The pipeline is moving.
+
+Here's what's sitting in your drafts folder ready to send. Six high value messages. The Jason Bloomberg bio correction, the Luke Munns mediation acceptance, the Capgemini final follow-up, the Greg Dempster pricing reply, the MFAA Events team outreach, and the Michael and Lizzy follow-up on the three pieces of work with the deposit ask. There are also around fifteen cold outreach drafts. Those are tier three. Do not let them displace the six that matter.
+
+So here's what matters most today. First priority, send the Capgemini final follow-up before half past nine. Second, send the Luke Munns mediation reply. Third, send the AHDS Scotland pricing reply and the MFAA Events team outreach. If the morning window is tight, just do priority one.
+
+A few ADHD traps live for you today. Watch for Helpful Hyperfocus. It will be tempting to start prepping the Sydney mediation in detail before you've even confirmed the fee and the deal. Send the reply first, do the prep after. Watch for Perfect System Building. There's a system test task due in Airtable today about seeding the Memory OS folder in Drive. Don't burn your pre conference window tinkering with folders when Capgemini is live. And watch for Business Conflation. The QB Conference is church and personal, not Clarity Group Global work. Don't log conference conversations into the CRM unless a real leadership booking emerges.
+
+Last thing. What's your energy level this morning? High, Good, Flat, or Off? If you're Flat or Off, send the Capgemini follow-up and nothing else. Protect yourself through the conference day. Everything else can wait until Wednesday morning.
+
+That's your morning reset. Have a good day Jonno.

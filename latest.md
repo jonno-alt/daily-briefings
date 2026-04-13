@@ -1,1 +1,19 @@
-First briefing arrives tomorrow morning at 5:30 AM Brisbane.
+Good morning Jonno. This is your Monday morning reset for Clarity Group Global, the thirteenth of April twenty twenty six.
+
+The one thing that needs your attention most today is Arminia Seferovic at ACN. She reached out twenty three days ago asking for your fee and your healthcare background, and she still hasn't heard back. This is a five thousand dollar deal at thirty percent probability, giving it the highest weighted value in your active pipeline at fifteen hundred dollars. Send that reply today. That is your number one priority.
+
+Overnight, Luke Munns emailed about attending a formal mediation in Sydney on the twenty ninth of April. That is personal territory, not a CGG lead, so just flag it for yourself when you have a moment. The Fyxer AI meeting notes from your Phil Jones coaching session earlier this morning are also ready to review. No new CGG inbound inquiries came in overnight.
+
+Now to your schedule. You have one CGG commitment today: a leadership coaching session with Phil Jones from Tyndale at ten in the morning, running ninety minutes. Phil is on medical leave dealing with anxiety, so the focus is on his support plan without committing to a return date. The rest of your day has personal and family blocks in the early morning and evening. Tomorrow you have the QB Conference at Riverlife Baptist Church from nine thirty in the morning until four in the afternoon, which is a personal church event, so plan your CGG priorities around that.
+
+On your pipeline, you have sixteen active CGG deals excluding won and lost. Confirmed revenue this week is five thousand dollars from the People First Bank keynote on the twenty second of April, which is already won. That leaves a gap of seven thousand dollars to your twelve thousand dollar weekly target. Your top three focus deals by weighted value are: first, Arminia Seferovic at ACN for the Human Side of AI Keynote, five thousand dollars at thirty percent, weighted fifteen hundred; second, John Holbrook at Ravenswood for AI in Education, three thousand dollars at twenty five percent, weighted seven hundred and fifty, with two draft replies sitting in Gmail; and third, MFAA for their conference speaker slot, five thousand dollars at fifteen percent, weighted seven hundred and fifty, with the events team contact ready to go.
+
+You have over twenty drafts sitting in Gmail. The highest priority ones to send are the John Holbrook reply, the MFAA events team follow-up, and the Clifton College people team follow-up. After those, there are multiple UK school outreach follow-ups and info pack lead follow-ups ready to go.
+
+Here is what matters most today. First, reply to Arminia Seferovic at ACN with your fee and relevant healthcare and not-for-profit experience. Twenty three days is too long and this is your highest-weighted deal. Second, send the John Holbrook and MFAA draft replies, both have real revenue potential and the emails are already written. Third, deliver the Phil Jones coaching session at ten and send the follow-up email afterward.
+
+A few traps to watch for today. You are in Memory OS build week and the system is now live and working. Do not spend today perfecting it when Tier one revenue work is waiting. The social media and content tasks are running automatically in the background, so do not get pulled into content creation. The ElevenLabs morning reset pipeline is set up, so resist the urge to tinker with it further. And Phil's situation is genuinely complex, but keep the coaching session focused and time-boxed so it does not expand into a three hour deep dive that displaces the Arminia reply.
+
+One last thing. What is your energy level this morning? High, good, flat, or off? If you are flat or off today, just do priority number one, reply to Arminia, and protect yourself. Everything else can wait.
+
+That's your morning reset. Have a good day Jonno.

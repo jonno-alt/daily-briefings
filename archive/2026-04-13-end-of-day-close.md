@@ -1,0 +1,17 @@
+Good evening Jonno. This is your Monday end of day close for Clarity Group Global, the thirteenth of April twenty twenty six.
+
+Starting with the final email sweep since one in the afternoon. There were no new revenue relevant emails this afternoon. The main activity was seven outreach emails you sent to UK academy trusts including Penrose Learning, Ormiston, and Inspiration Trust. Your GMass UK outreach campaign sent seven emails, and Buffer confirmed social media posts went live across all channels. On LinkedIn, Scott E. Barron accepted your connection, and you received two new invitations plus a message from Shaun Kenny at People of Influence worth reviewing tomorrow.
+
+On the deal front, no stage changes were needed from this afternoon's activity. Five new deals were added to the pipeline today. The most significant is Luke Munns requesting you as a support person for the Hillsong mediation on the twenty ninth of April in Sydney. That is valued at three thousand five hundred dollars with a sixty per cent probability. The other new entries are Sharon Weinstein, a warm info pack lead who replied with her credentials, Fatima who downloaded the info pack today, Jessyca Stone from The Enterprise World which is a low priority paid PR placement, and Shiela May Sacueza which is flagged as a likely investment scam. Do not engage.
+
+For the stale deal scan, all nineteen open deals are zero to four days old. Nothing anywhere near the fourteen day or thirty day thresholds. The one deal to watch closely is Aaron John at Capgemini. That is a fifteen thousand dollar proposal with a deadline of tomorrow, the fourteenth. Your final follow-up draft is ready in Gmail and needs to go out first thing.
+
+On drafts, you have twenty unsent drafts, all created today. None are overdue. The key revenue drafts to send are the Luke Munns mediation acceptance, the Capgemini final follow-up, the Greg Dempster pricing reply for AHDS Scotland, and the Michael and Lizzy follow-up about the three pieces of work and deposits.
+
+Moving to tomorrow's priorities. Number one, send the Aaron John Capgemini follow-up. At fifteen thousand dollars this is your highest value action. Number two, send the Luke Munns mediation reply to lock in the role and discuss the fee. Number three, you are at the QB Conference at Riverlife Baptist Church from nine thirty in the morning until four in the afternoon. Roman needs picking up from daycare at four. You also have nine follow-ups due tomorrow in Airtable including sending Kevin Macki the presentation deck, sending the final invoice to Progressive Youth Care, fixing Jason Bloomberg's bio which carries reputational risk, and replying to Rachel Humphrey.
+
+On the pipeline, you have twenty four deals across all stages. Seventeen are at Lead stage totalling nineteen thousand five hundred dollars, two are at Proposal Sent totalling twenty thousand dollars, four are Won at five thousand dollars, and one is Lost. Your total weighted pipeline value is thirteen thousand five hundred and fifty dollars. No deals changed stage today but five new deals were added. Your win rate for the month sits at eighty per cent with four wins and one loss.
+
+For inbox zero, you have approximately two hundred and one unread emails. Most are noise including Buffer post confirmations, GMass notifications, DMARC reports, and newsletters. Consider bulk archiving the Buffer and GMass notifications tomorrow, that would clear roughly fifteen emails in one go.
+
+That is your end of day close. Have a good evening Jonno.

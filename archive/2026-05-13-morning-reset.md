@@ -1,0 +1,25 @@
+Good morning Jonno. This is your Wednesday morning reset for Clarity Group Global, the thirteenth of May twenty twenty six.
+
+Here's what matters most today. Your single biggest move is sending the Optus reply to Keith Harwood at Inspire Speakers. The keynote is the twenty eighth of May, fifteen days from now, and there are four unsent drafts sitting in your Gmail from over a week ago. The proposal is logged as sent, but those drafts being unsent suggests it may not have actually gone. Open one of the drafts, clean it up, and hit send before lunch. This deal is worth thirteen thousand five hundred dollars plus GST. It is the most leveraged twenty minutes you have today.
+
+On new overnight items, Sarah Deering at Loxton Christian School replied yesterday agreeing to a catch up about Rocky in June with Blair and Tim. You already sent date options at five thirteen yesterday afternoon, so wait for her to come back. Raphaella from BSM Expo declined cleanly, that's a closed lost. Three new info pack downloads came in via the website. The rest of the overnight pile is noise, including a suspicious bid proposal email from a James Purcell that you should not click.
+
+Now to your schedule. Today is wide open. No CGG sessions. Liz has an AGM at seven tonight. You pick up Roman from daycare at four. That's it for fixed commitments. This is a desk and outreach day, which is exactly what the pipeline needs.
+
+On your reminders, the deck is light. Just two coming up this week, both info pack follow ups, one to Victoria at FoodHQ on the fifteenth, one to Anoop on the sixteenth. Nothing overdue, nothing flagged high.
+
+On your pipeline, you have about thirty active CGG deals across new lead, prospect, discovery, and proposal stages, plus another ten closed won that are mid delivery. Three proposals are sitting in flight. The first is Optus at thirteen thousand five hundred. The second is Ravenswood AI Keynote on the twentieth of November at five thousand nine hundred. The third is AHDS Scotland in Glasgow in November at five thousand. That's twenty four thousand four hundred dollars in proposals in flight.
+
+Top three focus deals by weighted value. Number one is Optus, weighted at eight thousand one hundred. Number two is Ravenswood, weighted at four thousand one hundred and thirty. Number three is AHDS Scotland, weighted at one thousand seven hundred and fifty. Two deals are stale beyond fourteen days, the AHDS Scotland proposal and the Greg Dempster draft reply. Send the AHDS reply today as your second send. Confirmed revenue this week is zero so far, so the gap to your twelve thousand dollar weekly target is the full twelve thousand. Optus alone would clear the month.
+
+On your drafts, you have seventeen sitting in Gmail. The hot ones are Keith Harwood for Optus, John Holbrook at Ravenswood for the November booking, Richard Cahill at Tove Learning Trust UK, Nikii at Progressive Youth Care for re engagement, and Laura Vasconcellos in Ireland for the June dates that affect the Mark Rasi conflict.
+
+Here are your three priorities for today. First, send the Optus reply to Keith Harwood. Tier one revenue, fifteen days out. Second, reply to Mark Rasi at Queensland Baptists with your fifteenth of June availability and the proposed run sheet. You promised Monday or Tuesday and you are now two days overdue. Chase Laura Vasconcellos for Ireland dates if you need them locked first, but do not let that delay Mark. Third, send the PowerPoint deck to Kevin Macki at Schools United. That is outstanding since the ninth of April and represents eighty one US school leaders who saw you. It is your warmest US referral pipeline.
+
+On the ADHD traps live today, Content Comfort is your biggest risk. With no client sessions and an open day, the temptation is to drift into blog drafts or SEO work. Tier one revenue first. The Optus send takes twenty minutes. Do that before you open Canva. Perfect System Building is the second risk. You have been in Memory OS build mode. Today is a day to use the system, not audit it.
+
+Looking out, this week you have the Broncos game Sunday afternoon, a dentist filling next Wednesday morning, and a pencilled catch up with PJ Wilken Wednesday late morning in Brisbane. This month watch for the Toddle School Leaders Meetup presentation on the twenty second, the Suncoast YLC coaching cycle on the twenty fifth, twenty seventh, and twenty ninth, the Optus keynote on the twenty eighth if it confirms, and the Suncoast Leadership cycle the second week of June. Looking out across the next ninety days, watch for the fifteenth of June, which has both a Suncoast pre brief and the Mark Rasi Queensland Baptists Connect Day if you book it, the Rockhampton trip on the twenty second and twenty third of June, and the Edward Amey coaching session on the thirtieth of June.
+
+Energy check. What is your energy level this morning? High, Good, Flat, or Off? If you are Flat or Off, do only priority one. Send the Optus reply to Keith Harwood. Everything else can wait until tomorrow. Protect yourself.
+
+That's your morning reset. Have a good day Jonno.

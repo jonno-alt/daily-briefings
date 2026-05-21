@@ -1,0 +1,27 @@
+Good morning Jonno. This is your Friday morning reset for Clarity Group Global, the twenty second of May twenty twenty six.
+
+Here's what matters most today. The single highest leverage thing you can do this morning is chase Keith Harwood at Inspire Speakers about the Optus executive leadership team booking on the twenty eighth of May. You sent the proposal of thirteen thousand five hundred dollars plus GST eighteen days ago and Keith has not replied. The event is just six days away. This is the biggest piece of revenue in your near term pipeline and it has gone cold. One short, friendly, direct email today asking Keith for a yes or no by Monday. If he does not come back, you write it off and move on. But you have to ask.
+
+Now to your schedule. You have one CGG event today, the Toddle school leaders meet up presentation. It sits as an all day block on the calendar. Treat the morning as quiet prep, deliver the presentation cleanly, and use the back end of the day to chase Keith and clear your inbox. The rest of the calendar today is family blocks, early morning with Liz and the kids, and the evenings from five and seven. Protect those. There are no Dan Warlow Music events today.
+
+On what came in overnight, four things matter for CGG. Mark Rasi at Queensland Baptists wants an updated invoice for the CES Connect Day, that's a quick send. Brian Hawthorne at Carinity has sent through his Working Genius assessment and is confused about a low score in one of his strongest areas, he needs a four sentence explainer from you. And two listicle correction requests have landed, one from FINCA about their CEO mention, one from Groundwork Ohio about Amelia Dworkin. Both feed into your listicle correction sweep, which is your Saturday job, not today's.
+
+On your reminders, you have a heavy overdue backlog, eleven items past due, mostly on the Info Pack follow up list. The three highest priority overdue items are calling Ahmed Minhas at Guidepoint about the Saudi CXO AI keynote, replying to Mark Rasi about the Working Genius assessment setup for fifteenth of June, and sending the info pack to Inga Grieger. Two reminders are due today, schedule the discovery call with Emma Erlach at BW ESS, and follow up Melanie Mann at bswift about the October AI keynote in San Diego. The Saturday job is the listicle correction sweep. The way through this backlog is to batch send the twenty Info Pack follow up drafts that are already sitting polished in Gmail, in one twenty minute block, and tick eight reminders off at once.
+
+On your pipeline, you have around twenty eight active deals open. Nothing new has closed this week, so you are still carrying the full twelve thousand dollar gap to your weekly target. The top three deals by weighted value are the Optus full day workshop at thirteen thousand five hundred, weighted to eight thousand one hundred, the Ravenswood school for girls AI keynote in November at five thousand nine hundred, weighted to four thousand one hundred and thirty, and the Glasgow keynote with Greg Dempster at AHDS Scotland, weighted to one thousand seven hundred and fifty. Both Optus and Glasgow are stale, sitting in proposal stage well past two weeks. Glasgow has a draft pricing reply already written, send it today.
+
+In your drafts folder you have twenty Info Pack follow up emails sitting from the thirteenth of May. They are warm, polished, and ready to go. Send them in one batch.
+
+Your three priorities today, in order. One, chase Keith Harwood about Optus. Two, deliver the Toddle presentation. Three, clear the deck, send the twenty drafts, update Mark Rasi's invoice, and reply to Brian Hawthorne.
+
+Looking out further, this week between today and Friday you have a Suncoast pre-brief with Trent on Monday at one, a Luke Munns coaching on Tuesday at ten, the full Suncoast year level coordinators coaching delivery on Wednesday up at Sunshine Coast, potentially Optus in Melbourne on Thursday if Keith confirms, and the Suncoast debrief on Friday at nine. That's a heavy week, lock the prep in tonight.
+
+This month watch for your mum's retirement dinner on the thirty first of May, a Greg Mattiske leadership coaching pre-brief on Monday the eighth of June, Suncoast leadership coaching delivery on the tenth, the Queensland Baptists CES Connect Day Working Genius session on the fifteenth, and Suncoast primary stage leaders coaching on the nineteenth.
+
+The next ninety days, the big rocks are Rockhampton for the Heights College coaching engagement on the twenty second and twenty third of June, you need to book flights and accommodation, Edward Amey at Jay Nolan on the thirtieth of June via Google Meet, a pencilled Michael Quach PD day in Sydney on the twentieth of July, and in November the Ravenswood AI keynote in Sydney and the potential Glasgow trip if AHDS Scotland confirms.
+
+The ADHD traps most likely to bite today are content comfort, the urge to polish the Toddle deck instead of sending the Keith email first, research rabbit holes on the listicle corrections, and helpful hyperfocus expanding the Brian Hawthorne reply into a full debrief. Send Keith first. Time box the corrections for Saturday. Keep Brian's reply short.
+
+Now, energy check. How are you feeling this morning? High, Good, Flat, or Off? If today is Flat or Off, do only one thing, send the Keith email. Skip the drafts batch, skip the listicle work, deliver the Toddle presentation on muscle memory, protect the family blocks, and call the day a win.
+
+That's your morning reset. Have a good day Jonno.
